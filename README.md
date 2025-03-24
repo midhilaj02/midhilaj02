@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @midhilaj
-- 👀 I’m interested in artificial inteligence and robotics,i am a car entusiast  my dream car bmw m competition edidion and porsche 911 gt3 rs
+- 👀 I’m interested in artificial inteligence and robotics,i am a car entusiast  my dream car bmw m competition edition and porsche 911 gt3 rs
 - 🌱 I’m currently learning artificial inteligence and robotics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
